@@ -1,2 +1,2 @@
-first drop ≈ 80 - 90 stars 
-second drop ≈ 100 - 130 stars
+first drop ≈ 90 - 120 stars 
+second drop ≈ 130 - 200 stars
